@@ -1,1 +1,1 @@
-# lncSight-Business-Growth-AnaIysis-from-Inc.-5000
+# IncSight-Business-Growth-Analysis-from-Inc.-5000
