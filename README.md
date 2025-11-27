@@ -1,0 +1,1 @@
+# lncSight-Business-Growth-AnaIysis-from-Inc.-5000
